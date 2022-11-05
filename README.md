@@ -13,6 +13,6 @@ You can click the Preview link to take a look at your changes.
 
 :dagger:
 
-# *Vivien* :heart: 
+# *Vivien* :roller_skate: :manual_wheelchair: :kiss: :mountain: :cake: :rainbow: :watermelon: :icecream: :apple: :strawberry: :coffee: :tea: :octopus:   :skateboard: :bike: :bacon: :egg:  :abacus: :duck::whale: :whale2::t-rex: :mate: :sunglasses: :sparkles:
 
-:cat: 
+
